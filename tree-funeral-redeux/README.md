@@ -147,7 +147,7 @@ And if you find a hole in the canopy—if you feel some warmth on your leaves—
 
 [^5]: https://villagezendo.org/practice/suggested-readings/precepts/
 
-[^6]: Laurie Palmer put it this way for Green Dreamer’s ~alchemize~ program (https://www.greendreamer.com/podcast/laurie-palmer-the-lichen-museum). Hear more of her Lessons from lichen worlds (https://www.greendreamer.com/podcast/laurie-palmer-the-lichen-museum).
+[^6]: Laurie Palmer put it this way for Green Dreamer’s \~alchemize~ program (https://www.greendreamer.com/podcast/laurie-palmer-the-lichen-museum). Hear more of her Lessons from lichen worlds (https://www.greendreamer.com/podcast/laurie-palmer-the-lichen-museum).
 
 [^7]: https://www.aphis.usda.gov/aphis/ourfocus/planthealth/plant-pest-and-disease-programs/pests-and-diseases/emerald-ash-borer
 
