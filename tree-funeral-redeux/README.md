@@ -33,7 +33,7 @@ I organized a funeral for a tree
 
 I walk past it multiple times a week. In a big Victorian cemetery that my kids play in like a playground. My firstborn learned her letters on these grave stones, in the early pandemic before we knew playgrounds were safe.
 
-![](map.avif)  
+![](map.webp)  
 _map from the event invite page, showing important nearby landmarks_
 
 I always jump to conclusions. Don't you? You see big pieces of a tree laying around; you see some hard-hatted, chainsawed crew on cherry-pickers, hacking down a beloved elder, and you think they must be gleeful. You picture eyes full of malice. Why do they hate trees?? 
