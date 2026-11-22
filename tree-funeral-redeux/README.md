@@ -56,6 +56,7 @@ A chance to reflect on mortality. To engage with mystery. To honor a life, so al
 So with the blessing of the cemetery board, I got to work.
 
 What religion is a tree?
+========================
 
 If a Buddhist dies, they have a Buddhist funeral. If a Christian, a Christian funeral. But what tradition should we draw from for a tree's funeral?
 
